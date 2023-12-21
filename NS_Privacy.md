@@ -1,5 +1,4 @@
 
-https://apps.apple.com/cn/app/id6473524258?l=zh-cn
 
 Privacy Policy
 The app respects and protects the personal privacy of all users of the service. In order to provide you with more accurate and personalized services, the App will use and disclose your personal information in accordance with the provisions of this Privacy policy. However, the App will treat such information with a high degree of diligence and prudence. Except as otherwise provided in this Privacy Policy, the App will not disclose such information to the outside world or provide it to third parties without your prior permission. The App will update this Privacy policy from time to time. When you agree to this application Service Usage Agreement, it is deemed that you have agreed to all contents of this Privacy policy. This Privacy Policy is an integral part of this Application Service Usage Agreement.
